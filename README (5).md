@@ -39,7 +39,7 @@ Contributions are welcome! If you have any suggestions for improvements or find 
 
 ### Contact
 
-For questions or further information, please contactshyammoka239@gmail.com
+For questions or further information, please contact  shyammoka239@gmail.com
 
 ---
 
